@@ -34,8 +34,7 @@ I believe in:
 ## Let's connect
 
 📍 Berlin, Germany  
-💼 [LinkedIn](https://linkedin.com/in/YOUR-LINKEDIN)  
-📧 [Email](mailto:your@email.com)
+💼 [LinkedIn](https://www.linkedin.com/in/cristianos)
 
 ---
 
